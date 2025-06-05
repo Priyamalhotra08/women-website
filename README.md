@@ -52,15 +52,17 @@ A full-stack real-time safety platform built to help women stay safe and connect
 ![Screenshot (232)](https://github.com/user-attachments/assets/8f51c1f7-6a44-4ee8-b9b0-e2f38d97dfbd)
  
 
+![Screenshot (233)](https://github.com/user-attachments/assets/79c4b64c-3d97-47f2-9363-1a88207216b2) 
+
+![Screenshot (234)](https://github.com/user-attachments/assets/9727328e-a3c7-4d21-a8bd-3304f29cbdf5) 
+
+![Screenshot (235)](https://github.com/user-attachments/assets/0a333e3f-769d-48ae-9f03-646d0dcfb58a) 
+
+![Screenshot (236)](https://github.com/user-attachments/assets/141368fb-db75-424f-8ea2-a10cfd966a48)
 
 
 
-    ![Screenshot (233)](https://github.com/user-attachments/assets/03441cf4-60ad-48ad-9be4-10dc299d1331)  
-    ![Screenshot (234)](https://github.com/user-attachments/assets/0e787078-a31e-458e-955c-a584dc459a64) 
-    ![Screenshot (235)](https://github.com/user-attachments/assets/eaacbfba-4ec6-4886-abff-5a90b3b874da) 
-    
 
-    ![Screenshot (236)](https://github.com/user-attachments/assets/1334fbcf-b786-4eef-93f9-074f88f5fa4b) 
     
 ![Screenshot (237)](https://github.com/user-attachments/assets/624c7131-de86-4e62-bb45-b9d8cb0d9c8e) 
 
